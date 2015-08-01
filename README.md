@@ -7,3 +7,4 @@ sadsdasdasd
 Hello Thinh, Minh Color
 
 Thinh khung dien ngao ngoc khong thong minh
+fghfgh
